@@ -1,1 +1,1 @@
-These are my list public of the projects.
+These are my list of public of the projects.
